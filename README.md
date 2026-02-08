@@ -1,0 +1,1 @@
+Stars are born from cosmic clouds, shine through nuclear fusion, and die in spectacular ways—shaping galaxies and forging the elements of life. This essay traces their journey from nebulae nurseries to white dwarfs, neutron stars, and black holes, revealing how stellar deaths seed new worlds. We are all made of their ancient light.
